@@ -18,7 +18,7 @@
 </div><br/>
 
 ## Qualificação Profissional
-<div>Auxiliar de suporte em computadores</div></br>
+<div>auxiliar técnico em informática</div></br>
 
 ##
 iniciando no mundo da programação!! ✨✨✨✨
